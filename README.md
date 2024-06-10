@@ -1,1 +1,3 @@
-EAT KIMCHI BABY
+## EAT KIMCHI BABY
+
+IT Dictionary
